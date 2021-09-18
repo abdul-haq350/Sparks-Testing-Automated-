@@ -10,3 +10,7 @@ TASK : TESTING AUTOMATED BY : ABDUL HAQ
 ![4](https://user-images.githubusercontent.com/62520008/133909993-11a4f377-d61a-4492-85ce-62e836eb4bc0.jpg)
 ![5](https://user-images.githubusercontent.com/62520008/133909997-185b0669-c20c-48f3-a80a-61dc946eea4d.jpg)
 ![6](https://user-images.githubusercontent.com/62520008/133909998-0450c7c6-79ee-479b-b66c-31d6555cca00.jpg)
+
+
+https://user-images.githubusercontent.com/62520008/133910452-2b3ed534-7096-4902-8fda-4fbb14daf849.mp4
+
